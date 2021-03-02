@@ -2,6 +2,8 @@
 
 ## Contacts
 
+Minsk, Belorus
+
 +375 44 7700833
 
 pavelnevolya@gmail.com
