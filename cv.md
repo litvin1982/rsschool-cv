@@ -1,0 +1,64 @@
+## Pavel Mikhalkevich
+
+## Contacts
+
+Minsk, Belorus
+
++375 44 7700833
+
+pavelnevolya@gmail.com
+
+## Junior Java Script developer
+
+### TECHNOLOGIES
+- Python
+- Java Script
+- CSS
+- HTML
+
+### EXPERIENCE
+
+L.L.C "Lucky Stream" , Minsk - Derector, 
+March 2015 - until now
+
+L.L.C "Metfens" , Minsk - Derector, 
+March 2013 - February 2014
+
+P.C. "TSUM Minsk", Minsk - Leading specialist in occupational safety and health, 
+March 2007 - April 2012
+
+P.C. "TSUM Minsk", Minsk - Сommunication electrician, 
+March 2002 - April 2007
+
+## EDUCATION
+School # 68, Minsk, 
+September 1988 - May 1997
+
+Higher College of Communication, Minsk, 
+September 1997 - April 2001, 
+Communications Technician
+
+Higher College of Communication, Minsk, 
+September 2001 - June 2005, 
+Economist-Manager
+
+## COURSES
+Programming in Python,
+September 2020 - October 2020
+
+https://stepik.org/cert/829261
+
+
+## LANGUAGES
+English - native speaker
+
+Russian - highly prificient
+
+Belarussian - highly prificient
+
+## Skills
+
+Teamwork, liedership, executive
+
+## Hobies
+Sports, fishing
